@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Eazyfella
 - 👀 I’m interested in ...money
 - 🌱 I’m currently learning ...how to make more money
-- 💞️ I’m looking to collaborate on ...making money ventures
+- 💞️ I’m looking to collaborate on ... money making ventures
 - 📫 How to reach me ...via my bank
 
 <!---
